@@ -5,4 +5,6 @@ Keyboard is the New Sexy is one of the mini-sites under She Raged where users ty
 
 Do we have to be either a muse or a slut? 
 
+https://allyyl.github.io/Keyboard/
+
 <img width="1398" alt="sample screen" src="https://github.com/AllyYL/Keyboard/assets/88838342/991281c8-8a7b-4399-a027-618a921fd6e4">
